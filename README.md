@@ -1,1 +1,1 @@
-https://minesgratuito.github.io.
+https://minesgratuito/spacemen.github.io.
