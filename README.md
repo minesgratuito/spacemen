@@ -1,1 +1,1 @@
-# spacemen
+https://minesgratuito.github.io.
